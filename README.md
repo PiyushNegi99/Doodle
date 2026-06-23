@@ -1,2 +1,2 @@
 # Doodle
-Just Doodle
+Just Doodle Idiots
